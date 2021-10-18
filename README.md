@@ -17,4 +17,6 @@ Here are some ideas to get you started:
 
 >Contact To me  
 Email : inweag80@gmail.com  
-Discord : SS#1024
+Discord : SS#1024  
+  
+Special Thanks to DPI#6011. (Discord)
