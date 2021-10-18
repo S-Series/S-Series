@@ -15,6 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
->Contact To me 
+>Contact To me  
 Email : inweag80@gmail.com  
 Discord : SS#1024
