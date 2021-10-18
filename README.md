@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+<Contact To me>  
+Email : inweag80@gmail.com  
+Discord : SS#1024
