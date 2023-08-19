@@ -20,4 +20,4 @@ Email : inweag80@gmail.com
 Discord : SS#1024
 https://discord.gg/7VTDec8SCs
   
-Special Thanks to DPI#6011. (Discord)
+Special Thanks to dpi0520. (Discord)
